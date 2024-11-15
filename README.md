@@ -1,4 +1,4 @@
-## Olá! Eu sou Marcos Roberto, apaixonado programação e tecnologia!
+## Um eterno estudante, apaixonado programação e tecnologia!
 
 **Sobre mim**
 
